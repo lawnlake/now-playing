@@ -1,2 +1,2 @@
 VIdeo art by Lake/Lawn
-[https://](https://rodeo.club/@lake/posts)
+[Rodeo.club](https://rodeo.club/@lake/posts)
